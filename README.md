@@ -1,0 +1,1 @@
+# funnyadventure.github.io
